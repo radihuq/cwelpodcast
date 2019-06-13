@@ -1,3 +1,12 @@
+### 04 | Michelle Duong [1:01:51]
+Michelle Duong is the COO of SmartLines, a start-up that aims to make online sports betting SMART and accessible. She has previously worked at organizations such as RBC Innovation, Samsung Electronics Canada HQ, and Leonardo Worldwide Corporation. During her undergraduate days as a Marketing Management Co-op student at the University of Guelph, Michelle was committed to enriching the lives of students. She was the President of DECA U Ontario, VP Marketing of the Canadian Association of Business Students, and delivered keynote presentations at distinguished events – to name a few endeavors.
+
+In this episode we focus on Michelle’s experience being the President of DECA U Ontario – Canada’s largest undergraduate association and conference. We discuss topics like relationship building, sponsorship acquisition strategies, and the transferrable skills & experiences event planning provides you.
+
+<iframe src="https://anchor.fm/cwelpodcast/embed/episodes/04--Michelle-Duong-e4b2sp" height="102px" width="400px" frameborder="0" scrolling="no"></iframe>
+
+<hr>
+
 ### 03 | Ray Khan [1:10:00]
 Ray Khan is a brand strategist fascinated by design, technology and problem solving. With over a decade of experience, Ray has amassed a rich and diverse body of work. As the founder at Kiritsu Design & Technology along with his talented team, they have developed platforms and created engaging content for brands and firms such as Universal Music Canada, Telus, Deloitte, the U.S. Government, the Government of Canada, several Fortune 500 corporations and technology startups.
 
