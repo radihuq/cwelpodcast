@@ -1,4 +1,4 @@
-### 03 | Ray Khan [1:10:00]
+### 05 | Abarna Selvarajah [1:09:09]
 Abarna Selvarajah is a Tamil-Canadian fourth year student in Political Science and History at uOttawa. Her research interests include Tamil resistance movements, political theory, her homeland, human rights, and resilience within marginalized groups, but more specifically with women. She hopes to pursue higher education and work in the field of human rights activism. Abarna just completed her term as President with the Model United Nations Association and is retiring after four years of commitment to the team. Her leadership style is one of compassion, which she believes can help bring teams together to work toward more accessible, diverse, and invigorating student-led events.
 
 In this episode we talk about her learnings as the President of the Model United Nations Association at uOttawa. We discuss topics such as compassionate leadership, exploring an organization’s origin story, and representation at events. We also talk extensively about how she ran successful recurring training session events for her organization.
