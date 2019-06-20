@@ -1,3 +1,12 @@
+### 03 | Ray Khan [1:10:00]
+Abarna Selvarajah is a Tamil-Canadian fourth year student in Political Science and History at uOttawa. Her research interests include Tamil resistance movements, political theory, her homeland, human rights, and resilience within marginalized groups, but more specifically with women. She hopes to pursue higher education and work in the field of human rights activism. Abarna just completed her term as President with the Model United Nations Association and is retiring after four years of commitment to the team. Her leadership style is one of compassion, which she believes can help bring teams together to work toward more accessible, diverse, and invigorating student-led events.
+
+In this episode we talk about her learnings as the President of the Model United Nations Association at uOttawa. We discuss topics such as compassionate leadership, exploring an organization’s origin story, and representation at events. We also talk extensively about how she ran successful recurring training session events for her organization.
+
+<iframe src="https://anchor.fm/cwelpodcast/embed/episodes/05--Abarna-Selvarajah-e4d8ju" height="102px" width="400px" frameborder="0" scrolling="no"></iframe>
+
+<hr>
+
 ### 04 | Michelle Duong [1:01:51]
 Michelle Duong is your local coffee shop gal pal – probably sipping on her iced coffee at the local Starbucks with Photoshop opened up. She is the Co-Founder & COO of SmartLines, a start-up that aims to make online sports betting SMART and accessible. She has previously worked at organizations such as RBC Innovation, Samsung Electronics Canada HQ, and Leonardo Worldwide Corporation. During her undergraduate days as a Marketing Management Co-op student at the University of Guelph, Michelle was committed to enriching the lives of students and held over 16+ leadership positions. She was the President of DECA U Ontario, VP Marketing of the Canadian Association of Business Students, and delivered keynote presentations at distinguished events – to name a few endeavors.
 
